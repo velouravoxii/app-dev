@@ -22,4 +22,4 @@ January 16, 2026
 
 ![Poster](https://m.media-amazon.com/images/M/MV5BZTI4ZGMxN2UtODlkYS00MTBjLWE1YzctYzc3NDViMGI0ZmJmXkEyXkFqcGc@._V1_.jpg)
 
-This movie is peak! :🦖:
+This movie is peak! 🦖
